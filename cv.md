@@ -1,4 +1,4 @@
-**Mikhail Churylau**
+__Mikhail Churylau__
 ====
 ***
 ## Contacts:
